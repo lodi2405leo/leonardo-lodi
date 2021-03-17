@@ -6,7 +6,7 @@
 - **Riabilitazione post operazione chirurgica** (*protesi, ricostruzione legamentosa, ...*)
 - Fisioterapia e **riabilitazione** delle principali problematiche dell’**età geriatrica** (*Parkinson, osteoartrosi, sedentarietà, ...*)
 - **Riabilitazione sportiva** fino al completo *ritorno alle competizioni*
-- **Massoterapia**
+- **Massoterapia** rilassante e decontratturante
 
 ## Il mio approccio col paziente
 
@@ -18,6 +18,8 @@ Infatti associo al trattamento che metto in atto, una parallela **informazione s
 
 ## Dove lavoro ?
 
+Esercito nel:
+- settore giovanile della società calcistica [*S.P.A.L*](https://www.spalferrara.it/)
 Esercito nel [*Poliambulatorio Salus*](http://poliambulatoriosalus.org/medici-poliambulatorio-salus/).
 
 ## Contattami
