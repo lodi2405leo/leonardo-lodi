@@ -18,13 +18,13 @@ Infatti associo al trattamento che metto in atto, una parallela **informazione s
 
 ## Dove lavoro ?
 
-Esercito nel [**Poliambulatorio Salus**](http://poliambulatoriosalus.org/medici-poliambulatorio-salus/).
+Esercito nel [*Poliambulatorio Salus*](http://poliambulatoriosalus.org/medici-poliambulatorio-salus/).
 
 ## Contattami
 
-[Scrivimi su **Whatsapp**: 3497065038](https://wa.me/393497065038)
+[Scrivimi su *Whatsapp*: 3497065038](https://wa.me/393497065038)
 
-[Mandami una **mail**: leonardo.fisioterapista@gmail.com](mailto:leonardo.fisioterapista@gmail.com)
+[Mandami una *mail*: leonardo.fisioterapista@gmail.com](mailto:leonardo.fisioterapista@gmail.com)
 
 ## CV
 
