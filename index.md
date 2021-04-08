@@ -20,7 +20,9 @@ Infatti associo al trattamento che metto in atto, una parallela **informazione s
 
 Esercito nel:
 - settore giovanile della società calcistica [*S.P.A.L*](https://www.spalferrara.it/)
-- [*Poliambulatorio Salus*](http://poliambulatoriosalus.org/medici-poliambulatorio-salus/).
+- [*Poliambulatorio Salus*](http://poliambulatoriosalus.org/medici-poliambulatorio-salus/)
+
+Eseguo **trattamenti a domicilio** con la massima professionalità
 
 ## Contattami
 
