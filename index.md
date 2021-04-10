@@ -1,3 +1,4 @@
+
 # Fisioterapista
 
 ## Mi occupo di:
@@ -9,6 +10,8 @@
 - **Massoterapia** rilassante e decontratturante
 
 ## Il mio approccio col paziente
+
+![fisioterapista](https://user-images.githubusercontent.com/80768785/114265315-6889e380-99f0-11eb-8f3a-e40b01885de9.jpg)
 
 Ritengo che un buon trattamento inizi dalla **ricerca del benessere della persona**, il che significa che un mio obiettivo fondamentale sia non solo l’applicazione di **tecniche fisioterapiche**, ma la ricerca di un contatto empatico e una **relazione di fiducia** con il paziente.
 
